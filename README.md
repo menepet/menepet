@@ -4,6 +4,6 @@
 
 ### Hi there 👋
 
-🚀 If you want to learn more about my 😎 interesting character & 💻 employment don't hesitate to enter and scan my personal website [https://www.menepet.me/](https://www.menepet.me/).
+🚀 If you want to learn more about my 😎 interesting character & 💻 employment don't hesitate to enter and scan my personal website [https://menepet.me](https://www.menepet.me/).
 
 ⚡ Fun fact: I love puns
